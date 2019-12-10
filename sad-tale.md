@@ -1,5 +1,2 @@
-House Stark of Winterfell is led by the just Eddard "Ned" Stark, Lord of
-Winterfell, Warden of the North, Hand of the King, Protector of the Realm,
-Regent.  He is surely honorable and will lead a long and prosperous life.
-
-I know not the fate of the fabled and revered Neddard Stark
+Ned traveled back in time and waited for HBO's content writers to wait for
+George RR Martin to write a legitimate ending.
